@@ -1,2 +1,0 @@
-# Zoe
-Maoguy and Zoe
